@@ -2,6 +2,18 @@
 
 
 
+## Filipe
+
+- **Filmes Favoritos**
+  - **Duro de matar**
+  - **O ultimo homem**
+  - **Rambo**
+- **Músicas Favoritas**
+  * **Rock**
+  * **Trap**
+  * **rap**
+_____________________________________________________
+
 ## Éderson
 
 - **Filmes Favoritos**
