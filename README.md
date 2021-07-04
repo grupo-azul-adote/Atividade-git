@@ -10,7 +10,7 @@
   - **Duro de matar**
   - **O ultimo homem**
   - **Rambo**
-- **Músicas Favoritas 
+- **Músicas Favoritas**
   * **Rock**
   * **Trap**
   * **rap**
